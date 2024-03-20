@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @elmntmsn
+- 👀 I’m interested in Coding, Music and Photography
+- 🌱 I’m currently learning Metallurgical engineering.
+- 📫 How to reach me Discord: elmnts
